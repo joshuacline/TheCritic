@@ -26,4 +26,5 @@
 
 <a href="https://" target="_blank"><img src="prosthetics.gif" alt=" " width="720"/></a>
 
+- You're nothing without your phoney abilities, prosthetic brain, personas, or what essentially amounts to your existence. Imposters.
 
