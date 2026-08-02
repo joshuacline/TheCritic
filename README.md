@@ -21,3 +21,9 @@
 ## Why is the software development community turning a blind eye?
 
 - Unfortunately, this demographic are the primary beneficiaries & receivers of industry kick-backs, clearly invested in driving humanity off a cliff. This isn't a new renaissance, or an equity movement for the have-nots in skills or creativity, it's the beginning of the end for both.
+
+<a href="https://" target="_blank"><img src="fakepersonas.jpg" alt=" " width="720"/></a>
+
+<a href="https://" target="_blank"><img src="prosthetics.gif" alt=" " width="720"/></a>
+
+
