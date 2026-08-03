@@ -24,6 +24,11 @@
 
 <a href="https://" target="_blank"><img src="fakepersonas.jpg" alt=" " width="720"/></a>
 
+
+# Attack of the soulless mediocre nobody's
+
+- Aside from the usual self-enrichment schemes & financial incentives, the onslaught of building & selling customized fake portfolios with corrosponding identities, there's another motive at play: Psychology. Jealous, weak, predatory individuals with a twisted inferiority complex that want to take you down to their level. Their mission isn't really anything surprising or new, with the only difference being now they have the tools to do the job. The annihilation of creative, talented, or otherwise highly capable individuals as these people are a reminder of something they'll never be: Exceptional.
+
 <a href="https://" target="_blank"><img src="prosthetics.gif" alt=" " width="720"/></a>
 
 - You're nothing without your phoney abilities, prosthetic brain, personas, or what essentially amounts to your existence. Imposters.
